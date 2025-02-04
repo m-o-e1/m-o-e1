@@ -2,7 +2,7 @@
 - 👀 I’m interested in software engineering/IT
 - 🌱 I’m currently learning about banking applications
 - 💞️ I’m looking to collaborate on more future engineering projects
-- 📫 How to reach me - enofem1026@students.bowiestate.edu
+- 📫 How to reach me - enofem1026@students.bowiestate.edu or mirabelenofe@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love watching films/shows
 
